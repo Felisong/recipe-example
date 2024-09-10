@@ -1,9 +1,9 @@
 # recipes list
 
-## not my favorite cake
+##very yummy cake!
 
-The Ingredients
-For the Cake:
+Ingredients
+
 2 ½ cups all-purpose flour
 2 ½ tsp baking powder
 ½ tsp salt
@@ -53,7 +53,7 @@ Step 8: Assemble the Cake
 Once the cakes are completely cooled, place one layer on a serving plate.
 Spread a layer of buttercream frosting on top.
 Place the second layer on top and frost the top and sides of the cake.
-Decorate as desired (sprinkles, fresh fruit, or chocolate shavings work great!). Don't worry too much!
+Decorate as desired (sprinkles, fresh fruit, or chocolate shavings work great!). Make it fancy, but don't worry too much!
 
 Step 9: Serve and Enjoy
 Slice the cake and serve it to your friends and family. Enjoy the delightful flavors of this classic vanilla cake!
