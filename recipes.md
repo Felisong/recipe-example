@@ -10,6 +10,7 @@ For the Cake:
 4 large eggs
 1 tbsp pure vanilla extract
 1 cup whole oat milk
+1 cup whole almond milk
 For the Buttercream Frosting:
 1 cup unsalted butter, softened
 4 cups powdered sugar
