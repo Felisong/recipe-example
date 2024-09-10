@@ -9,7 +9,7 @@ For the Cake:
 2 cups granulated sugar
 4 large eggs
 1 tbsp pure vanilla extract
-1 cup whole milk
+1 cup whole oat milk
 For the Buttercream Frosting:
 1 cup unsalted butter, softened
 4 cups powdered sugar
@@ -17,7 +17,7 @@ For the Buttercream Frosting:
 1 tsp pure vanilla extract
 Pinch of salt
 
-Instructions
+Instructions for baking:
 Step 1: Prepare the Oven and Pans
 Preheat your oven to 350°F (175°C).
 Grease and flour two 9-inch round cake pans.
