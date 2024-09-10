@@ -2,7 +2,7 @@
 
 ##very yummy cake!
 
-Ingredients Needed:
+**Ingredients Needed:**
 
 2 ½ cups all-purpose flour
 2 ½ tsp baking powder
