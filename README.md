@@ -1,0 +1,2 @@
+# recipe-example
+inclass lab
