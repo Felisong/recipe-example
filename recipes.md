@@ -2,7 +2,7 @@
 
 ##very yummy cake!
 
-Ingredients
+Ingredients Needed:
 
 2 ½ cups all-purpose flour
 2 ½ tsp baking powder
@@ -20,7 +20,8 @@ For the Buttercream Frosting:
 1 tsp pure vanilla extract
 Pinch of salt
 
-Instructions for baking:
+**Instructions for baking:**
+
 Step 1: Prepare the Oven and Pans
 Preheat your oven to 350°F (175°C).
 Grease and flour two 9-inch round cake pans.
@@ -49,7 +50,7 @@ In a large bowl, beat the softened butter until creamy.
 Gradually add the powdered sugar, mixing on low speed until combined.
 Add the heavy cream, vanilla extract, and a pinch of salt. Beat on high speed for about 3 minutes until fluffy.
 
-Step 8: Assemble the Cake
+Step 8: Assemble the Cake!
 Once the cakes are completely cooled, place one layer on a serving plate.
 Spread a layer of buttercream frosting on top.
 Place the second layer on top and frost the top and sides of the cake.
