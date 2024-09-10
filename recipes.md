@@ -1,7 +1,6 @@
 # recipes list
 
-Ingredients
-For the Cake:
+Ingredients for the Cake:
 2 ½ cups all-purpose flour
 2 ½ tsp baking powder
 ½ tsp salt
